@@ -1,1 +1,1 @@
-areeya chanakan
+Areeya Chanakan
